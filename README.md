@@ -1,1 +1,0 @@
-# pavelhalanin.github.io
